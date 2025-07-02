@@ -7,7 +7,7 @@
 - Максимальный x: 2000
 - RTP: 97%
 
-🏆🏆🏆 Регистрация clck.ru/3CSLpj
+🏆🏆🏆 Регистрация https://clck.ru/3CSLpj
 🍒🍒🍒 Бонус: 500%
 Промокод: MARKETOLOGIA
 
@@ -17,7 +17,7 @@
 - RTP: 95%
 
 
-🏆🏆🏆 Регистрация clck.ru/3CSLpj
+🏆🏆🏆 Регистрация https://clck.ru/3CSLpj
 🍒🍒🍒 Бонус: 500%
 Промокод: MARKETOLOGIA
 
@@ -27,7 +27,7 @@
 - RTP: 96.5%
 
 
-🏆🏆🏆 Регистрация clck.ru/3CSLpj
+🏆🏆🏆 Регистрация https://clck.ru/3CSLpj
 🍒🍒🍒 Бонус: 500%
 Промокод: MARKETOLOGIA
 
@@ -37,7 +37,7 @@
 - RTP: 95.6%
 
 
-🏆🏆🏆 Регистрация clck.ru/3CSLpj
+🏆🏆🏆 Регистрация https://clck.ru/3CSLpj
 🍒🍒🍒 Бонус: 500%
 Промокод: MARKETOLOGIA
 
@@ -47,7 +47,7 @@
 - RTP: 97.2%
 
 
-🏆🏆🏆 Регистрация clck.ru/3CSLpj
+🏆🏆🏆 Регистрация https://clck.ru/3CSLpj
 🍒🍒🍒 Бонус: 500%
 Промокод: MARKETOLOGIA
 
